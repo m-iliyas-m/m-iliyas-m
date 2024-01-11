@@ -11,7 +11,7 @@
 
 - 🤝 I’m looking for help with **data science**
 
-- 📫 How to reach me **iliyasmansuri001@gmail.com**
+- 📫 How to reach me **iliyasmansuri1430@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
